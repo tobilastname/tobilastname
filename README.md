@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tobilastname
+- 👀 I’m interested in jjba
+- 🌱 I’m currently learning nothing coding related
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me ... dont
